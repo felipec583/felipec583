@@ -14,7 +14,7 @@
 
 🤝 Feel free to reach out for collaborations, tech chats, or just to connect!
 
-* 💼 **LinkedIn:** [LinkedIn](https://www.linkedin.com/in/facl)
+* [LinkedIn](https://www.linkedin.com/in/facl)
 
 
 
