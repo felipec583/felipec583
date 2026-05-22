@@ -16,7 +16,6 @@
 
 * 💼 **LinkedIn:** [https://www.linkedin.com/in/facl](LinkedIn)
 
-* 
 
 
 <!--
